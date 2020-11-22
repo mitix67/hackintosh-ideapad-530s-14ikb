@@ -1,0 +1,1 @@
+# hackintosh-ideapad-530s-14ikb
